@@ -14,7 +14,7 @@ No part of this work, including the characters, story, and visual designs, may b
 * **Curly Dan**
 * **Straight Lace Shane**
 * **Stan the Butcher**
-* **Benomous Vicky**
+* **Venomous Vicky**
 * **Zing Rizzah**
 
 ### Protected Towns:
